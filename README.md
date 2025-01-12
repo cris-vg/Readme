@@ -6,6 +6,8 @@ He seguido trabajando, con lo cual, no he podido disfrutar demasiado.
 
 Aún así he podido **disfrutar** en los dias más señalados con la **familia**.
 
+![Mi principal decoración de Navidad](/img/Navidad2024.jpg)
+
 Se me han quedado muchas cosas por hacer:
 
 1. Hacer un viaje.
